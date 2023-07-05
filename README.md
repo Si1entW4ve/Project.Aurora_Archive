@@ -19,3 +19,7 @@
 ## Read & Download The Document
 
 [Source](https://files.fm/f/bztj5cu2a) | [Mirror](https://raw.githubusercontent.com/akiko-blog/Project.Aurora_Archive/main/project_aurora.pdf)
+
+## Disclaimer
+
+***There is no ralationship between the Project Retsu and the Project Aurora. I never take part in the Project Aurora and I don't know any member of the Project Aurora.***
