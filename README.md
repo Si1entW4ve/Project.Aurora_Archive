@@ -12,7 +12,7 @@
 >
 > To fill the tiny blank, we started the Project Aurora in Feb, 2022.
 
-*Content above comes from [`the About of the Project Aurora`](https://proj3ctaurora.tilda.ws/about), translated by RetsuAkiko.*
+*Content above comes from [`the About of the Project Aurora`](https://proj3ctaurora.tilda.ws/about), translated by Silent Wave.*
 
 *You can visit the [official website](https://proj3ctaurora.tilda.ws/) for more information.*
 
@@ -22,4 +22,4 @@
 
 ## Disclaimer
 
-***There is no ralationship between the Project Retsu and the Project Aurora. I never take part in the Project Aurora and I don't know any member of the Project Aurora.***
+***I HAVE NO ralationship with Project Aurora. I NEVER take part in the Project Aurora and I don't know any member of the Project Aurora.***
