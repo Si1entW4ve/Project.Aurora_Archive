@@ -23,3 +23,14 @@
 ## Disclaimer
 
 ***I HAVE NO ralationship with Project Aurora. I NEVER take part in the Project Aurora and I don't know any member of the Project Aurora.***
+
+## Anti GitCode
+
+> ***Text below is written in order to fight against GitCode platform by Chinese rascal CSDN only, which is NOT related to Project Aurora or this mirror repo.***
+
+*不要核酸要吃饭，不要文革要改革
+不要封控要自由，不要领袖要选票
+不要谎言要尊严，不做奴才做公民*
+
+*Remember victims on Tian'anmen Square.* 🕯️
+***1989.06.04***
